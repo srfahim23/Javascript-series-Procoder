@@ -1,2 +1,2 @@
 # Javascript-series-Procoder
-I am just regular work and practic in this stage
+I will be regular update this git Insallah ...
